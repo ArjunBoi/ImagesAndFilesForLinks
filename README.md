@@ -1,1 +1,1 @@
-### Contains Images, Videos and Gifs that i want to link to
+### Contains Images, Videos and Gifs that I want to provide public links to
